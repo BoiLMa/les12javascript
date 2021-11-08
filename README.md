@@ -1,0 +1,1 @@
+ik heb via f12 de kleur en positie van een paar delen van mijn site aangepast
